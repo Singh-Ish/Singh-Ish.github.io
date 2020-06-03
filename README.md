@@ -1,1 +1,0 @@
-# Singh-Ish.github.io
